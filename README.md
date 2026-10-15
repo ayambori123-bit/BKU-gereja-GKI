@@ -1,2 +1,0 @@
-# BKU-gereja-GKI
-pelaporan
